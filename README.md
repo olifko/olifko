@@ -49,6 +49,8 @@ Python
 
 Контакты:
 Телефон/WhatsApp: 8-953-174-3002
+
 Телеграм: https://t.me/olifko
+
 Почта: o.atkinson@mail.com
 
